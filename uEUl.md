@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时27分32秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>三一重工放量上涨，工程机械行业景气度边际改善</h3><br><p>全国城镇调查失业率降至4.8%，就业形势保持总体稳定。<br><br> | 来源：<code>goosn.cn
+</code></p><br><br><h3>全国徒步露营大会举办，串联百公里山野路线吸引数万爱好者</h3><br><p>调味品开启集体涨价，食品板块盈利迎来修复。<br><br> | 来源：<code>jjdianqi.cn
+</code></p><br><br><h3>海参价格单月上涨18%，海产养殖龙头盈利提升</h3><br><p>央行宣布定向降准1个百分点，精准支持普惠金融领域。<br><br> | 来源：<code>dongfangyu.com.cn
+</code></p><br><br><h3>紫金矿业沿5日均线上行，趋势行情下的持仓策略</h3><br><p>巴西经济复苏，二季度农业工业双增长。<br><br> | 来源：<code>njaimu.cn
+</code></p><br><br><h3>国产大飞机C919批量交付，民航产业链标的上涨</h3><br><p>中际旭创再创阶段新高，趋势加速下的持仓策略。<br><br> | 来源：<code>qiujob.com
+</code></p><br><br><h3>暑期亲子游订单同比增长45%，研学旅行成为消费新热点</h3><br><p>云从科技人机协同大模型3.0发布，赋能人机交互场景。<br><br> | 来源：<code>soteam.cn
+</code></p><br><br><h3>美联储降息后美元指数走弱，大宗商品价格迎来反弹</h3><br><p>硅片价格单月上涨5%，光伏制造环节盈利边际改善。<br><br> | 来源：<code>shadowrobot.cn
+</code></p><br><br><h3>多地发放消费券超200亿元，撬动社会消费超千亿元</h3><br><p>中国中冶冶金工程高增，单季业绩预告超预期。<br><br> | 来源：<code>shzhonglv.cn
+</code></p><br><br><h3>小鹏汽车单季交付破3万，业绩亏损大幅收窄</h3><br><p>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升。<br><br> | 来源：<code>guoguangjixie.cn
+</code></p><br><br><h3>药明康德CXO全球布局：全球医药研发外包的龙头价值</h3><br><p>产业资本集中增持AI教育龙头，付费用户高增获资本布局。<br><br> | 来源：<code>bieyao.cn
+</code></p><br><br><h3>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增</h3><br><p>亿纬锂能换手率超3%，量能放大下的资金动向解析。<br><br> | 来源：<code>zhongyaolu.cn
+</code></p><br><br><h3>葛洲坝异动拉升3.4%，水电工程业务持续增长</h3><br><p>智慧景区全覆盖，全国5A景区全部实现刷脸入园智能导览。<br><br> | 来源：<code>ykyxz.cn
+</code></p><br><br><h3>亨通光电涨超4.4%，海洋能源业务贡献增量</h3><br><p>林业碳汇交易政策，林业运营标的全线异动。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>新希望生猪出栏高增，单季业绩预告环比减亏</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>美联储降息后美元指数走弱，大宗商品价格迎来反弹</h3><br><p>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>张伟丽卫冕UFC女子草量级冠军，成功守住金腰带</h3><br><p>贵州茅台品牌价值深度解析：白酒龙头的定价权逻辑。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>上半年全国机器人产量同比增长25%，智能制造加速推进。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>多地发放亿元文旅消费券，直接带动消费超30亿</h3><br><p>中国跳水队世锦赛包揽全部13金，延续梦之队统治力。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>三一重工突破半年线，中期趋势逐步转强</h3><br><p>银保监会出台新政，进一步降低实体经济融资成本。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>功率半导体价格上调6%，IGBT板块迎来涨价催化</h3><br><p>四川成渝放量上涨2.3%，区域路网业务持续向好。<br><br> | 来源：<code>www.muzhien.cn
