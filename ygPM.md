@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>美联储降息25BP，中概股集体暴涨带动A股联动</h3><br><p>上半年全国网上零售额同比增长9.5%，直播电商贡献突出。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>高管团队集体增持智慧交通标的，合计增持金额超1.2亿</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>CBA联赛总决赛收视率创新高，本土球员表现亮眼</h3><br><p>中国男子网球选手闯入ATP巡回赛决赛，创历史最佳排名。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>河北建工涨超2.7%，雄安新区基建订单饱满</h3><br><p>全球碳交易市场规模突破5000亿美元，助力双碳目标。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>外资持续流入亿纬锂能，储能龙头外资持仓占比突破4%。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>全国乒乓球业余赛参赛人数破百万，国球群众基础深厚</h3><br><p>北向资金举牌工业机器人龙头，外资持仓创历史新高。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>中医药振兴发展规划，中药全板块集体上涨</h3><br><p>券商板块异动激活人气：行情回暖下的贝塔机会解析。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>全国老年大学体育课程覆盖超千万老人，健康老龄化推进</h3><br><p>CBA联赛总决赛收视率创新高，本土球员表现亮眼。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>三一重工数字化转型：工程机械龙头的效率提升路径</h3><br><p>中远海控集运运价反弹，单季业绩预告环比大增。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>合肥推出“科里科气”文旅线路，科技研学游订单暴涨</h3><br><p>锂电设备海外订单爆发：产业链业绩弹性排序。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>大秦铁路异动拉升2.8%，煤炭运输量稳步提升</h3><br><p>外资机构席位净买入沪硅产业8000万，硅片龙头获外资加仓。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心</h3><br><p>上半年全国显示面板出口同比增长21%，电子产业优势巩固。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>AI大模型企业启动申购，ToB付费转化率超行业平均水平</h3><br><p>薯片产品价格上调4%，零食板块迎来涨价催化。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>招商银行股价修复，银行板块高股息属性获资金青睐</h3><br><p>中国电建新能源电站运营：电力工程龙头的第二成长曲线。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>全国电解铝行业全部实现超低排放，能耗水平全球领先</h3><br><p>海大集团饲料市占率提升，单季业绩预告超预期。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国健身气功交流大赛举办，覆盖超百万中老年爱好者</h3><br><p>北京君正涨超5.3%，车载存储芯片需求爆发。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>多地景区推出免票政策，国有A级景区免票覆盖超300家</h3><br><p>尿素价格单月上涨9%，化肥板块迎来产品涨价催化。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>全球新能源汽车电池市场规模突破3000亿美元，中国企业主导</h3><br><p>科大讯飞星火大模型V5.0发布，语音识别准确率突破99.8%。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>土耳其经济通胀回落至30%，金融市场逐步稳定</h3><br><p>2026年上半年国内旅游人次突破30亿，同比增长18%。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>中国国际跳棋队世锦赛夺冠，新兴智力运动实现突破。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>降准资金定向支持绿色能源，光伏风电板块获流动性利好</h3><br><p>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发。<br><br> | 来源：<code>www.tiantian8.com
