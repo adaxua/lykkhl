@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>浙江建投异动拉升4.7%，浙江共同富裕区基建加码</h3><br><p>桂林山水暑期游热度回升，漓江游船日均发船超200艘。<br><br> | 来源：<code>https://get-kaiyun-app.com.cn
+</code></p><br><br><h3>广州马拉松开跑，参赛选手破3万全马完赛率创新高</h3><br><p>全国运动康复中心超万家，运动损伤诊疗体系逐步完善。<br><br> | 来源：<code>https://gnxzot.cn
+</code></p><br><br><h3>长安汽车自主转型路径：从传统燃油车到新能源的蜕变</h3><br><p>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析。<br><br> | 来源：<code>https://go-bb-sports.com.cn
+</code></p><br><br><h3>2026年经济运行稳中向好，高质量发展迈出坚实步伐</h3><br><p>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%。<br><br> | 来源：<code>https://go-caoliushequ.cn
+</code></p><br><br><h3>工业大模型落地万座工厂，生产效率平均提升30%</h3><br><p>百亿私募组团调研6G通信企业，技术试验进度超市场预期。<br><br> | 来源：<code>https://go-fuliji.com.cn
+</code></p><br><br><h3>新增开户数环比大增，互联网券商板块全线走强</h3><br><p>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%。<br><br> | 来源：<code>https://go-hg-sports.com.cn
+</code></p><br><br><h3>涪陵榨菜产品提价能力：细分赛道龙头的定价权解析</h3><br><p>金风科技风电整机技术：国内风电龙头的技术迭代路径。<br><br> | 来源：<code>https://go-jinmantiantang.com.cn
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>芯片价格开启涨价潮，半导体板块盈利迎来修复。<br><br> | 来源：<code>https://go-jisu-sports.com.cn
+</code></p><br><br><h3>央行加大结构性降息力度，精准支持数字经济领域</h3><br><p>派能科技海外认证优势：户用储能产品的全球准入壁垒。<br><br> | 来源：<code>https://go-kaiyun-hub.com.cn
+</code></p><br><br><h3>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场</h3><br><p>中国中车异动拉升，一带一路订单持续释放。<br><br> | 来源：<code>https://go-mitaoshipin.com.cn
+</code></p><br><br><h3>实控人兜底式增持AI大模型标的，员工参与规模超预期</h3><br><p>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期。<br><br> | 来源：<code>https://go-mogushipin.com.cn
+</code></p><br><br><h3>全国森林覆盖率提升至24.5%，年新增造林面积超600万公顷</h3><br><p>大股东承诺6个月内不减持氢能标的，释放稳定股价信号。<br><br> | 来源：<code>https://gongce-by-zhu-xiang-bi-qu-ge-zuixin-zhangjie.com.cn
+</code></p><br><br><h3>高管团队集体增持低空飞行器标的，合计增持超7000万</h3><br><p>工业软件扶持政策出台，工业软件标的全线拉升。<br><br> | 来源：<code>https://goutouluoli.com.cn
+</code></p><br><br><h3>钾肥价格连续上涨10%，钾肥板块盈利弹性释放</h3><br><p>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热。<br><br> | 来源：<code>https://goutouluolishipin.com.cn
+</code></p><br><br><h3>英国经济止跌回升，二季度GDP同比增长0.6%</h3><br><p>上海建工城市更新布局：上海本地基建龙头的区域优势。<br><br> | 来源：<code>https://gpian.net.cn
+</code></p><br><br><h3>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商</h3><br><p>航发动力技术壁垒：航空发动机国产替代的核心路径。<br><br> | 来源：<code>https://guess-worldcup-win.com
+</code></p><br><br><h3>养老金新进光伏逆变器标的，海外市占率提升获长期配置</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>https://guhejun.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>企业融资成本创历史新低，制造业投资增速回升。<br><br> | 来源：<code>https://guiruhougong.com.cn
+</code></p><br><br><h3>知名私募调研钠电池龙头，量产线投产时间点首次公开</h3><br><p>北向资金连续5日净流入，降息后外资持续加仓核心资产。<br><br> | 来源：<code>https://guo-mo-bai-lu.com.cn
+</code></p><br><br><h3>科技成长行情延续：AI算力、半导体、光模块的景气度排序</h3><br><p>机器人减速器标的启动申购，谐波减速器国产替代率突破50%。<br><br> | 来源：<code>https://guochan-chengren-dianying.com.cn
