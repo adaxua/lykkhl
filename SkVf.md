@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>兆易创新存储芯片优势：国产NOR Flash龙头的成长路径</h3><br><p>武当山暑期游客量突破120万人次，道教文化游持续升温。<br><br> | 来源：<code>https://guochanshipinzaixianguankan.cn
+</code></p><br><br><h3>央行宣布全面降准0.5个百分点，释放长期资金超万亿</h3><br><p>海参价格单月上涨18%，海产养殖龙头盈利提升。<br><br> | 来源：<code>https://guochantoupai.com.cn
+</code></p><br><br><h3>新能源汽车换电模式推广政策，换电产业链拉升</h3><br><p>新希望生猪出栏高增，单季业绩预告环比减亏。<br><br> | 来源：<code>https://guochanwumayiqu.cn
+</code></p><br><br><h3>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍</h3><br><p>酱油价格单月上涨5%，调味品龙头盈利弹性释放。<br><br> | 来源：<code>https://guochanwumayiquerqu.cn
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>全国攀岩联赛覆盖20城，攀岩运动成年轻人新宠。<br><br> | 来源：<code>https://guochanyiqu.com.cn
+</code></p><br><br><h3>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增</h3><br><p>江铃汽车新能源轻卡高增，单季业绩预告超预期。<br><br> | 来源：<code>https://guochanyiquerqu.cn
+</code></p><br><br><h3>国际金价创历史新高，黄金珠宝标的集体上涨</h3><br><p>长安汽车涨停封板，深蓝系列车型销量破万。<br><br> | 来源：<code>https://guochanyiquerqusanqu.com.cn
+</code></p><br><br><h3>知名私募举牌MR产业链标的，调研后直接大额扫货</h3><br><p>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧。<br><br> | 来源：<code>https://guochanzaixianyiqu.cn
+</code></p><br><br><h3>恒瑞医药创新药管线：研发投入进入收获期的业绩展望</h3><br><p>新疆暑期游订单破5000万，独库公路日均通车量超2万辆。<br><br> | 来源：<code>https://guochanzhuanqu.com.cn
+</code></p><br><br><h3>东方电缆海缆订单爆发，前三季度业绩预增超70%</h3><br><p>北向资金举牌广告营销龙头，AI营销高增获外资持续流入。<br><br> | 来源：<code>https://guochanzi-pai.cn
+</code></p><br><br><h3>AI代码助手普及，程序员开发效率平均提升40%</h3><br><p>杀虫剂价格上涨12%，农化产业链景气回升。<br><br> | 来源：<code>https://guochanzi-pai.com.cn
+</code></p><br><br><h3>亿纬锂能换手率超3%，量能放大下的资金动向解析</h3><br><p>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升。<br><br> | 来源：<code>https://guochanzipaishipin.cn
+</code></p><br><br><h3>建立自己的交易体系：没有规则的操作，最终只会被情绪带着走</h3><br><p>百亿私募组团到访人形机器人标的，核心零部件产能引关注。<br><br> | 来源：<code>https://guodongchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>知名私募举牌MR产业链标的，调研后直接大额扫货</h3><br><p>央行新增5000亿元支小再贷款，精准支持小微企业发展。<br><br> | 来源：<code>https://guuxfa.cn
+</code></p><br><br><h3>降准释放长期资金支持新能源，绿电板块迎来定向利好</h3><br><p>多地推出夜间文旅补贴，商户夜间经营成本下降30%。<br><br> | 来源：<code>https://h-youxi.com.cn
+</code></p><br><br><h3>风电行业景气度回升：整机、零部件的盈利改善逻辑</h3><br><p>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才。<br><br> | 来源：<code>https://h5-mitaoshipin.com.cn
+</code></p><br><br><h3>西班牙经济增速达2.8%，南欧经济表现亮眼</h3><br><p>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性。<br><br> | 来源：<code>https://haideshirenqi.com.cn
+</code></p><br><br><h3>国内大模型专利申请量全球第一，占比超60%</h3><br><p>工业金属集体上涨，有色板块迎来全面行情催化。<br><br> | 来源：<code>https://haideshirenqidongman.com.cn
+</code></p><br><br><h3>全国非遗工坊超5000家，带动百万群众就业增收</h3><br><p>五粮液重回165元，中秋旺季备货提前启动。<br><br> | 来源：<code>https://haijiao-luntan.cn
+</code></p><br><br><h3>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材</h3><br><p>中兴通讯算力业务爆发，单季净利润同比增80%。<br><br> | 来源：<code>https://haijiao-shequ.com.cn
