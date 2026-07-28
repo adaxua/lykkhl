@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>紫金矿业成本优势：全球铜金龙头的低成本矿产资源储备</h3><br><p>全国房贷利率动态调整机制优化，更多城市进入低利率区间。<br><br> | 来源：<code>https://oumeiguochanyazhou.cn
+</code></p><br><br><h3>承德避暑山庄暑期日均客流超6万，皇家文旅体验受追捧</h3><br><p>全国儿童青少年近视率同比下降2%，视力防控成效显现。<br><br> | 来源：<code>https://oumeijingpin.cn
+</code></p><br><br><h3>浪潮信息冲高，AI服务器需求维持高增长态势</h3><br><p>故宫博物院年接待观众突破2000万人次，文创产品营收超20亿。<br><br> | 来源：<code>https://oumeijingpin.com.cn
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>炒股最难的不是买对，而是在波动里守住正确的持仓。<br><br> | 来源：<code>https://oumeiquyi.com.cn
+</code></p><br><br><h3>海大集团研发体系：水产饲料配方技术的持续迭代能力</h3><br><p>安琪酵母放量上涨3.6%，海外市场拓展超预期。<br><br> | 来源：<code>https://oumeiwang.com.cn
+</code></p><br><br><h3>法国二季度GDP增长0.4%，经济逐步走出停滞</h3><br><p>北向资金单日买入伊利股份1.2亿，乳业龙头获外资持续流入。<br><br> | 来源：<code>https://oumeiwuma.com.cn
+</code></p><br><br><h3>企业中长期贷款利率创历史新低，制造业资本开支回升</h3><br><p>国产AI芯片算力突破256TOPS，支撑大模型高效运行。<br><br> | 来源：<code>https://oumeiyiquerqu.cn
+</code></p><br><br><h3>天合光能放量上涨5.5%，N型组件渗透率持续提升</h3><br><p>通威股份硅料成本优势：光伏全产业链龙头的盈利韧性。<br><br> | 来源：<code>https://oumeiyiquerqu.com.cn
+</code></p><br><br><h3>天然气价格季节性上涨15%，燃气运营板块迎来行情</h3><br><p>功率半导体价格上调6%，IGBT板块迎来涨价催化。<br><br> | 来源：<code>https://p-zhan-shipin.com.cn
+</code></p><br><br><h3>中国平安涨超3.4%，寿险新业务价值增速转正</h3><br><p>国内大模型备案数量破千款，行业应用落地加速。<br><br> | 来源：<code>https://p-zhanshipin.com.cn
+</code></p><br><br><h3>天合光能放量上涨5.5%，N型组件渗透率持续提升</h3><br><p>长城汽车异动拉升5.9%，坦克系列销量持续高增。<br><br> | 来源：<code>https://pa-papa.com.cn
+</code></p><br><br><h3>中芯国际管理层优势：半导体制造龙头的经营效率提升</h3><br><p>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画。<br><br> | 来源：<code>https://pa-papashipin.com.cn
+</code></p><br><br><h3>人形机器人核心标的启动申购，发行价对应估值具备吸引力</h3><br><p>新能源汽车换电模式推广政策，换电产业链拉升。<br><br> | 来源：<code>https://paomianfan.com.cn
+</code></p><br><br><h3>AI代码助手普及，程序员开发效率平均提升40%</h3><br><p>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升。<br><br> | 来源：<code>https://paomianfanroude.com.cn
+</code></p><br><br><h3>全国文化产业园区超3000家，集聚效应带动创意产业发展</h3><br><p>上半年全国社会物流总额同比增长5.6%，物流运行效率提升。<br><br> | 来源：<code>https://paozaiwojiadelamei.com.cn
+</code></p><br><br><h3>长白山暑期避暑游热度高，日均接待游客超2万人次</h3><br><p>央行下调SLF利率，货币政策宽松取向进一步明确。<br><br> | 来源：<code>https://papa-shipin.com.cn
+</code></p><br><br><h3>全国美术馆年展览超2万场，艺术惠民覆盖千万群众</h3><br><p>特变电工涨超3.3%，新能源业务盈利持续释放。<br><br> | 来源：<code>https://papapazaixianguankan.cn
+</code></p><br><br><h3>社保基金新进锂电回收龙头，布局循环经济高景气赛道</h3><br><p>中国滑板队奥运会夺得银牌，新兴项目快速崛起。<br><br> | 来源：<code>https://pennaishuidongman.com.cn
+</code></p><br><br><h3>企业债券融资利率大幅下行，直接融资占比进一步提升</h3><br><p>通威股份涨超4.9%，硅料价格企稳反弹。<br><br> | 来源：<code>https://penshui.com.cn
+</code></p><br><br><h3>北向资金大额增持天齐锂业，锂矿龙头外资持仓环比大增</h3><br><p>多地优化楼市限购政策，取消二环外住房限购限制。<br><br> | 来源：<code>https://pg-dianzi-pingtai.com.cn
